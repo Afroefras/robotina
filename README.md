@@ -1,1 +1,1 @@
-![Robotina](https://github.com/Afroefras/robotina/assets/66633690/2e89d988-b46a-4b1b-85fc-404f5e1791c4)
+![Robotina](https://github.com/Afroefras/robotina/assets/66633690/82ae1ac6-ac61-4a35-9247-70afec292985)
